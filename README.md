@@ -1,2 +1,2 @@
 # Registration
-Registration of all humans on the planet, now classified Homo keanu azerialis
+REGISTRATION OF HUMANS ON THE PLANET, NOW CLASSIFIED AS HOMO KEANU AZERIALIS.
